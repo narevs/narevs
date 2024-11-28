@@ -1,13 +1,13 @@
 ### 👋 Hi, I’m @narevs!
 
 - 👀 **I’m interested in:**  
-  Cleanroom manufacturing, lab furniture design, digital marketing, blogging, and YouTube content creation.  
+  digital marketing, blogging, and YouTube content creation.  
 
 - 🌱 **I’m currently learning:**  
   Advanced SEO, social media marketing, Google Ads, and analytics.  
 
 - 💞️ **I’m looking to collaborate on:**  
-  Turnkey cleanroom solutions, digital marketing campaigns, and innovative app development projects.  
+webdesign digital marketing campaigns, and innovative app development projects.  
 
 - 📫 **How to reach me:**  
   Email: nrayapati0@gmail.com
